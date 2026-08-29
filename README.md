@@ -63,8 +63,10 @@ My goal is to continuously improve my programming and development skills by buil
 
 ## 📬 Connect With Me
 
+## 📬 Connect With Me
+
 * **GitHub:** [Dhanyashree K S](https://github.com/dhanyashreeks-design)
-* **LinkedIn:** Add your LinkedIn profile here
+* **LinkedIn:** [Dhanyashree K S](https://www.linkedin.com/in/dhanyashree-k-s-82238b361/)
 
 ---
 
